@@ -33,3 +33,5 @@ This is my feedback ... i think this will be a veery important course to be read
 You can write your personal notes here; they will not be parsed and are for your own reference.
 now i am confident that i know all these things mentioned above
 this is the link for the notes by the professor --> https://tds.s-anand.net/marks-dashboard/
+
+and for the record i now that the deadline is long gone i am just following the instructions because i want to do justice with the course i dont just want a good grade for good cgpa, i believe that the knowledge matters if you have knowledge you can get a decent grade and then can do a good job in the real world.
